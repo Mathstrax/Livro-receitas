@@ -5,7 +5,7 @@
 
 - ##### *Strogonoff de frango*
 
-- #####Bife à Parmegiana*
+- Bife à Parmegiana
 
   
 
